@@ -7,6 +7,6 @@
 
 ![My first application, which was utilized in a professional setting.](https://i.ibb.co/kDFTnnC/gfdgfdfgdgdf.jpg)  
 
-[A tu link do pierwszej stworzonej muzykis w FL Studio](https://mega.nz/file/wicAULIZ#faYu5qsk2LQo_onPgWRcayQyhRaJcuVUsmtDFMZyQnM)
+[Link to my debut music production created in FL Studio.](https://mega.nz/file/wicAULIZ#faYu5qsk2LQo_onPgWRcayQyhRaJcuVUsmtDFMZyQnM)
 
  
