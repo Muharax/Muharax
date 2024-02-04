@@ -6,6 +6,4 @@
 
 [Link to my first music production created in FL Studio.](https://mega.nz/file/wicAULIZ#faYu5qsk2LQo_onPgWRcayQyhRaJcuVUsmtDFMZyQnM)
 
-[SKYNET - https://muharax.github.io/skynet_in_React/](https://muharax.github.io/skynet_in_React/)
-
  
